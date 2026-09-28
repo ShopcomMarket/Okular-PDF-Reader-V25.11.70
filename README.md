@@ -12,7 +12,7 @@ https://www.shopcom.tn/product/okular-pdf-reader-v25-11-70/
 Product Price : Free
 
 Payment :
-https://www.shopcom.tn/payment
+https://www.shopcom.tn/payments
 
 Website :
 https://www.shopcom.tn
